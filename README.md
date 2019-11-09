@@ -1,4 +1,4 @@
 # Start-programming-in-43-years
 
-I'm civil enginer. I interest to programing in 45 years old.
+I'm civil enginer.At age 45, I became interested in programming and started coding.
 It is too late ,I know.
